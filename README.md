@@ -220,4 +220,4 @@ Call of Juarez: Bound in Blood is available as a complete free version with all 
 Don’t miss out on the chance to experience this fantastic game! Download Call of Juarez: Bound in Blood today and embark on your Wild West adventure!
 
 ---
-**Last updated:** 2026-09-21 21:40:27 UTC
+**Last updated:** 2026-09-22 00:33:58 UTC
